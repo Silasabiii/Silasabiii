@@ -7,5 +7,4 @@
 - 💬 Ask me about my interests and hobbies.
 - 📫 How to reach me: silaschmiel@icloud.com
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: 
 -->
